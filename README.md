@@ -1,7 +1,52 @@
 # 🌟 Hi, I'm Abdullah! 👋  
 🎉 **Welcome to My GitHub Profile!**  
 
-I'm a passionate **Tech Enthusiast**, **Developer**, and **Mentor** committed to helping beginners navigate the world of technology.  
+I'm a passionate **Tech Enthusiast**, **Developer**, and **Mentor** committed to helping beginners navigate the world of technology.PROVIDING CANVA PRO TEAM LINK 2024.
+
+---
+
+## 🎨 **Get Canva Pro for Free!**  
+
+🌟 Unlock your creative potential with **Canva Pro Free Team Access**! Collaborate, design, and create stunning visuals without limits.  
+
+🔗 **Article Link**:  
+[![Canva Pro Team Link 2024](https://img.shields.io/badge/Read%20Now-Click%20Here-blue?style=for-the-badge)](https://hackcode.live/canva-pro-team-link-for-free-in-2024)  
+
+---
+
+### Why You Should Check This Out:
+✅ **100% Free Canva Pro Team Link**  
+✅ Access to premium features for graphic design  
+✅ Perfect for students, freelancers, and professionals  
+
+📘 **Step-by-Step Guide**:  
+Click the link above to access the article and join a free Canva Pro team in 2024. Start designing like a pro today!  
+
+![Canva Pro Banner](https://upload.wikimedia.org/wikipedia/commons/thumb/3/34/Canva_Logo.png/640px-Canva_Logo.png)  
+
+---
+
+
+
+Many people search for these tags to get canva pro cracked team link.
+#tags
+Canva Pro
+
+Canva Pro free
+
+Canva Pro price
+
+Canva Pro free for students
+
+Canva Pro free trial
+
+Canva Pro download
+
+Canva Pro yearly
+
+Cuentas de Canva Pro
+
+
 
 > **"Empowering the next generation of coders, one step at a time."**  
 
