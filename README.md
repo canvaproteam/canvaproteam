@@ -9,7 +9,10 @@ I'm a passionate **Tech Enthusiast**, **Developer**, and **Mentor** committed to
 
 🌟 Unlock your creative potential with **Canva Pro Free Team Access**! Collaborate, design, and create stunning visuals without limits.  
 
-🔗 **Article Link**:  
+🔗 **Canva Pro Team Link 2024**:  
+[![Canva Pro Team Link 2024](https://img.shields.io/badge/Read%20Now-Click%20Here-blue?style=for-the-badge)](https://hackcode.live/canva-pro-team-link-for-free-in-2024)  
+
+🔗 **Canva Pro Cracked**:  
 [![Canva Pro Team Link 2024](https://img.shields.io/badge/Read%20Now-Click%20Here-blue?style=for-the-badge)](https://hackcode.live/canva-pro-team-link-for-free-in-2024)  
 
 ---
