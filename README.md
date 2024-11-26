@@ -30,7 +30,7 @@ I'm a passionate **Tech Enthusiast**, **Developer**, and **Mentor** committed to
 📘 **Step-by-Step Guide**:  
 Click the link above to access the article and join a free Canva Pro team in 2024. Start designing like a pro today!  
 
-![Canva Pro Banner](https://hackcode.live/wp-content/uploads/2024/06/how-to-get-canva-pro-for-free-2024.png.webp)  
+
 
 ---
 
