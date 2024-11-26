@@ -17,6 +17,11 @@ I'm a passionate **Tech Enthusiast**, **Developer**, and **Mentor** committed to
 
 ---
 
+
+![Canva Pro Banner](https://hackcode.live/wp-content/uploads/2024/06/how-to-get-canva-pro-for-free-2024.png.webp)  
+
+---
+
 ### Why You Should Check This Out:
 ✅ **100% Free Canva Pro Team Link**  
 ✅ Access to premium features for graphic design  
